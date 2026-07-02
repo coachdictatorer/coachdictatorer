@@ -8,4 +8,6 @@
 
 <div align="center"> 
 met christian borle 5.23 !!
-fyi i disconncet every 20 mins no matter what so practically every time i disconnect, i'll rejoin within a few minutes! i'll usually tell u if i'm getting off ^_^
+  
+<div align="center"> 
+fyi i disconnect every 20 mins no matter what so practically every time i disconnect, i'll rejoin within a few minutes! i'll usually tell u if i'm getting off ^_^
